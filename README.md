@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @boxofmilk
-- 👀 I’m interested in computer sciences
+- 👀 I’m interested in computer sciences and astronomy
 - 🌱 I’m currently learning c++
 - 💞️ I’m looking to collaborate on IDdKDKKDKDk
 - 📫 How to reach me: himelol698@gmail.com
